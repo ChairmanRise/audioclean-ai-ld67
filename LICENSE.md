@@ -1,4 +1,4 @@
-# 
+# Seguro AudioClean pacote completo. Baixe e instale com sistema de plugins e tratamento de erros — rápido, seguro e fácil de usar.
 
 
 
